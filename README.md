@@ -1,4 +1,4 @@
-<pre style="font-size: 0.5em; line-height: 1;">
+<pre style="font-size: 0.2em; line-height: 0.5;">
                                                                                                                                                                                                         
                                                                                                                                                                                                         
                                                                                                                                                                                                         
