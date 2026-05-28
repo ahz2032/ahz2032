@@ -36,5 +36,5 @@
                                                                                                     
                                                                                                     
                                                                                                 
-Currently working in (1) Reviewing my documentation (2) Uploading content into my website (3) A cyberdeck with @ekkezia (4) A web-radio alarm clock                                                                                                                                 
+Currently (5/26) working on (1) Reviewing my documentation (2) Uploading content into my website (3) A cyberdeck with @ekkezia (4) A web-radio alarm clock                                                                                                                                 
                                                                                                     
